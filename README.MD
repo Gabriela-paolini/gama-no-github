@@ -1,0 +1,1 @@
+Até o momento estou achando este curso bem completo, mas ainda com algumas dificuldades, porém estou empenhada em ter sucesso no final.
